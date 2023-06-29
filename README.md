@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning .. #digitalisering #2023 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-- http/searching 202
+- http/searching for a while ago 
 
 <!---
 Qoutip/Qoutip is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
