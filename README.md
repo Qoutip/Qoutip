@@ -5,3 +5,8 @@
 - 🌱 I’m currently learning .. #digitalisering #2023 #code:* ✅🌿
   (https://github.com/Qoutip/Qoutip/assets/138122166/a84ec489-d4e2-4438-9933-8ae2411cbbda)
 nshot_20230629_202048_com android chrome](https://github.com/Qoutip
+Https://github.com
+###54758
+* #dokumentarie #voiceeffects 🌟
+* ###bitcoin
+* #cryptovaluta 
